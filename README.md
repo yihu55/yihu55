@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yihu55
-- 👀 I’m interested in traveling  
+- 👀 I’m interested in traveling, wandring in the woods.
 - 🌱 I’m currently learning webb fullstack skills
 - 📫 How to reach me veronicayi@msn.com
 
